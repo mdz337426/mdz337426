@@ -11,5 +11,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about ... Nothing
 - 📫 How to reach me: ... 🫠(z._.007_)
 - 😄 Pronouns: ... 
-- ⚡ Fun fact: ... 
+- ⚡ Fun fact: ...  Multitalented😁
 -->
