@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 
-- 🌱 I’m currently learning ... C++, DSA
+- 🌱 I’m currently learning ... C++, DSA, CP
 - 👯 I’m looking to collaborate on ... will tell you later..🥶
 
 - 💬 Ask me about ... Nothing
