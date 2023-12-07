@@ -7,5 +7,4 @@
 - 💬 Ask me about ... Nothing
 - 📫 How to reach me: ... 🫠(`z._.007_`)
 - 😄 Pronouns: ... Z
-- ⚡ Fun fact: ...  Multitalented👦
-
+- ⚡ Fun fact: ... 😳🤢
