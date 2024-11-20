@@ -1,10 +1,8 @@
 ### Hi there 👋
 
 
-- 🌱 I’m currently learning ... C++, DSA, CP
-- 👯 I’m looking to collaborate on ... will tell you later..🥶
+- 🌱 I’m currently learning ... C++, DSA, Backend
 
 - 💬 Ask me about ... Nothing
-- 📫 How to reach me: ... 🫠(`z._.007_`)
+- 📫 How to reach me: ...(`mdz31157@gmail.com`) 
 - 😄 Pronouns: ... Z
-- ⚡ Fun fact: ... 😳🤢
