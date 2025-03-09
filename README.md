@@ -1,4 +1,4 @@
-# Hi there, I'm mdz337426! 👋
+# Hi there, I'm Zeeshan! 👋
 
 Welcome to my GitHub profile! I'm passionate about technology and love to contribute to open-source projects. Here you'll find a collection of my work, projects, and collaborations. Feel free to explore and reach out if you have any questions or ideas!
 
